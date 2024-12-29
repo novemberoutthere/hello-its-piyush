@@ -1,0 +1,5 @@
+---
+title: "MY SITE DEMN"
+date: 2004-12-29
+---
+BRUDER, ITS MY SITE DEMN...NEW JOURNEY DEMN 
